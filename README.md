@@ -4,6 +4,6 @@
 
 - The [Room Temperature Circuit Sculpture](https://github.com/dschil138/room-temperature-circuit-sculpture) combines form and function
 
-- My day job is helping companies grow at [Cradle Media](https://cradle.media)
+- My day job is helping companies grow at [Cradle Media](https://cradle.media), specializing in healthcare
 
 - I also do [street photography](https://www.instagram.com/depth.street)
