@@ -21,4 +21,4 @@
 
 - My day job is helping companies grow at [Cradle Media](https://cradle.media), specializing in healthcare
 
-- I also do [street photography](https://www.instagram.com/depth.street)
+- My [street photography](https://www.instagram.com/depth.street) on Instagram
