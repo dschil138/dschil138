@@ -19,6 +19,4 @@
 
 ## 📸 Other
 
-- My day job is helping companies grow at [Cradle Media](https://cradle.media), specializing in healthcare
-
 - My [street photography](https://www.instagram.com/depth.street) on Instagram
